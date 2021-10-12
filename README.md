@@ -1,1 +1,1 @@
-# Aometry-Design-Studios
+# Aometry Design Studios
